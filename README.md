@@ -1,1 +1,1 @@
-# https-github.com-UtkarshChaurasia-AI-Enabled-B2B-FINTECH-Management
+AI-Enabled-B2B-FINTECH-Management
